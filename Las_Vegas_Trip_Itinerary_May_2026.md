@@ -1,6 +1,6 @@
 # Las Vegas Trip Itinerary — May 6–11, 2026
 
-**Travelers:** Alan & Wife (MGM Grand) | Sister, Brother-in-Law, Aunt, Nephew (New York-New York)
+**Travelers:** Alan & Marlena (MGM Grand) | Sister, Brother-in-Law, Aunt, Nephew (New York-New York)
 
 ---
 
@@ -8,14 +8,14 @@
 
 | Day | Date | Who's There | Theme |
 |-----|------|-------------|-------|
-| Wed | May 6 | Alan + Wife | Arrival (late night) |
-| Thu | May 7 | Alan + Wife | Alan off / Wife works til 2 PM → Hard Hat + Arts District → Penn & Teller |
-| Fri | May 8 | Alan + Wife | Both off → Hoover Dam & Valley of Fire → Hofbrauhaus or MGM dinner |
-| Sat | May 9 | Alan + Wife (AM) / Everyone (PM) | Relaxed morning → Family reunion evening |
+| Wed | May 6 | Alan + Marlena | Arrival (late night) |
+| Thu | May 7 | Alan + Marlena | Alan off / Marlena works til 2 PM → Hard Hat + Arts District → Penn & Teller |
+| Fri | May 8 | Alan + Marlena | Both off → Hoover Dam & Valley of Fire → Hofbrauhaus or MGM dinner |
+| Sat | May 9 | Alan + Marlena (AM) / Everyone (PM) | Relaxed morning → Family reunion evening |
 | Sun | May 10 | Everyone | Buffet brunch → High Roller → Family at Sphere / Couple's time → Farewell dinner |
-| Mon | May 11 | Alan + Wife | Pack up → Fly home to Chicago |
+| Mon | May 11 | Alan + Marlena | Pack up → Fly home to Chicago |
 
-**Work schedule:** Alan is off the entire trip. Wife works remotely Thursday only (6 AM – 2 PM), off Friday through Monday.
+**Work schedule:** Alan is off the entire trip. Marlena works remotely Thursday only (6 AM – 2 PM), off Friday through Monday.
 
 ---
 
@@ -31,15 +31,15 @@
 
 ## Thursday, May 7 — Alan's Free Day + Penn & Teller
 
-### While Wife Works (6:00 AM – 2:00 PM)
+### While Marlena Works (6:00 AM – 2:00 PM)
 
-Alan is off all day. Your wife works until ~2 PM. Some ideas for the morning solo or together once she wraps up:
+Alan is off all day. Marlena works until ~2 PM. Some ideas for the morning solo or together once she wraps up:
 
 **Solo morning options for Alan:**
 - **MGM Grand Pool Complex** — Lazy river, multiple pools. Grab a lounge chair and ease into vacation mode.
 - **Walk the south Strip** — Explore the Park (between NY-NY and Park MGM), peek into casinos you haven't seen, get the lay of the land for the rest of the trip.
 
-### After Wife's Work (~2:30 PM) — Hard Hat Lounge + Arts District
+### After Marlena's Work (~2:30 PM) — Hard Hat Lounge + Arts District
 
 Head off the Strip for the afternoon. The **Hard Hat Lounge** and the **Las Vegas Arts District** are right next to each other, about an 8-minute rideshare from MGM Grand.
 
@@ -195,7 +195,7 @@ The family just traveled. Casual dinner at **Gallagher's Steakhouse** or **Nine 
 This is the big group day. The **Wizard of Oz at the Sphere at 5:00 PM** anchors the afternoon, so plan around it.
 
 ### Brunch (~10:00 AM)
-**The Buffet at Bellagio** — This is the one for your wife. Excellent **crab legs**, shrimp, and a massive spread. Typically $50–$70/person for brunch. The variety means everyone finds something they love, and you can stick to carving stations, seafood, and grilled items for FODMAP-friendliness.
+**The Buffet at Bellagio** — This is the one for Marlena. Excellent **crab legs**, shrimp, and a massive spread. Typically $50–$70/person for brunch. The variety means everyone finds something they love, and you can stick to carving stations, seafood, and grilled items for FODMAP-friendliness.
 
 > **Alternative:** **Bacchanal Buffet at Caesars Palace** (~$85–$108/person) — Even larger selection with an enormous seafood spread. More expensive but arguably the best buffet in Vegas.
 
@@ -215,7 +215,7 @@ The whole family together for the **Happy Half Hour cabin** — a 30-minute ride
 
 > Tickets range ~$100–$250+ depending on seats. **They should buy these soon** — popular weekend shows sell out.
 
-### Alan + Wife — Couple's Time (~4:30–7:30 PM)
+### Alan + Marlena — Couple's Time (~4:30–7:30 PM)
 While the family is at the Sphere, you two have a few hours to yourselves. Some options:
 
 **Option A: Explore something you haven't gotten to yet**
@@ -269,7 +269,7 @@ Last night in Vegas. Keep it relaxed or keep it rolling:
 
 ## Quick Reference
 
-### Budget Estimate (Alan + Wife, not counting hotel)
+### Budget Estimate (Alan + Marlena, not counting hotel)
 
 | Category | Estimate |
 |----------|----------|
@@ -303,7 +303,7 @@ Last night in Vegas. Keep it relaxed or keep it rolling:
 2. **Rental car** (Fri, or Thu evening–Fri) — Book online in advance for best rates
 3. **Friday dinner** — Hofbrauhaus (no reservation needed), or Emeril's/Craftsteak via OpenTable
 4. **Carrot Top** (Fri May 8, 8 PM, if going) — Ticketmaster or vegas.com
-6. **Wizard of Oz at the Sphere** (Sun May 10, 5 PM) — Ticketmaster, buy soon (family only, not Alan + Wife)
+6. **Wizard of Oz at the Sphere** (Sun May 10, 5 PM) — Ticketmaster, buy soon (family only, not Alan + Marlena)
 7. **High Roller Happy Half Hour** (Sun ~12:30 PM) — Book online at The LINQ
 8. **Bellagio Buffet** (Sun brunch) — Walk-in usually works, but weekends can have long waits. Consider arriving right at opening.
 9. **Farewell dinner** (Sun) — OpenTable for whichever restaurant you choose
