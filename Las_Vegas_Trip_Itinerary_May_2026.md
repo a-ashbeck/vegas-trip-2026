@@ -10,7 +10,7 @@
 |-----|------|-------------|-------|
 | Wed | May 6 | Alan + Wife | Arrival (late night) |
 | Thu | May 7 | Alan + Wife | Alan off / Wife works til 2 PM → Hard Hat + Arts District → Penn & Teller |
-| Fri | May 8 | Alan + Wife | Both off → Hoover Dam & Valley of Fire road trip |
+| Fri | May 8 | Alan + Wife | Both off → Hoover Dam & Valley of Fire → Hofbrauhaus or MGM dinner |
 | Sat | May 9 | Alan + Wife (AM) / Everyone (PM) | Relaxed morning → Family reunion evening |
 | Sun | May 10 | Everyone | Buffet brunch → High Roller → Family at Sphere / Couple's time → Farewell dinner |
 | Mon | May 11 | Alan + Wife | Pack up → Fly home to Chicago |
@@ -119,15 +119,16 @@ Head north from Hoover Dam along the western edge of Lake Mead. The drive takes 
 
 You'll have been on your feet all day, so the evening is flexible based on energy levels:
 
-**Dinner — Use your $100 MGM food credit tonight:**
+**Dinner:**
 
-**Option A: Emeril's New Orleans Fish House** (MGM Grand) — Creole-style seafood right in your hotel. Grilled fish, shrimp, and rice dishes that are reasonably FODMAP-navigable. Ask for preparations without garlic/onion — upscale kitchens here handle this routinely.
+**Option A: Hofbrauhaus Las Vegas** (4510 Paradise Rd, ~10 min rideshare)
+The German beer hall — massive steins, pretzels, schnitzels, sausages, and a live Bavarian band from 6 PM on Fridays. A fun, lively atmosphere to celebrate the end of a big day outdoors. For FODMAP: stick with grilled sausages, pretzels, and simple sides. **Ask for preparations without garlic/onion** and skip the onion mustard. If you do Hofbrauhaus tonight, that opens up Saturday evening for a different group dinner option with the family.
 
-**Option B: Craftsteak by Tom Colicchio** (MGM Grand) — Modern steakhouse using small-farm ingredients. High-quality cuts, fresh seafood, and clean vegetable sides. Very FODMAP-friendly, and the kitchen will accommodate no-garlic/no-onion requests.
+**Option B: Emeril's New Orleans Fish House** (MGM Grand) — Creole-style seafood right in your hotel. Grilled fish, shrimp, and rice dishes that are reasonably FODMAP-navigable. Ask for preparations without garlic/onion. Use your **$100 MGM food credit** here.
 
-Both are inside MGM Grand, so zero commute after a long day on the road. Either one is a great use of the **$100 MGM food credit**.
+**Option C: Craftsteak by Tom Colicchio** (MGM Grand) — Modern steakhouse using small-farm ingredients. High-quality cuts, fresh seafood, and clean vegetable sides. Very FODMAP-friendly. Use your **$100 MGM food credit** here.
 
-> **Off-property alternative:** **Mon Ami Gabi at Paris Las Vegas** — Patio seating directly overlooking the Bellagio Fountains. Steak frites, grilled fish, French bistro menu. Gorgeous setting for a date night (but no MGM credit).
+> **Note:** If you go with Hofbrauhaus Friday, save the MGM food credit for Saturday or Sunday (e.g., Wolfgang Puck brunch, or a casual meal at the hotel).
 
 **After Dinner:**
 
@@ -300,7 +301,7 @@ Last night in Vegas. Keep it relaxed or keep it rolling:
 
 1. **Penn & Teller** (Thu May 7, 8 PM) — ✓ CONFIRMED
 2. **Rental car** (Fri, or Thu evening–Fri) — Book online in advance for best rates
-3. **Emeril's or Craftsteak** (Fri dinner) — OpenTable
+3. **Friday dinner** — Hofbrauhaus (no reservation needed), or Emeril's/Craftsteak via OpenTable
 4. **Carrot Top** (Fri May 8, 8 PM, if going) — Ticketmaster or vegas.com
 6. **Wizard of Oz at the Sphere** (Sun May 10, 5 PM) — Ticketmaster, buy soon (family only, not Alan + Wife)
 7. **High Roller Happy Half Hour** (Sun ~12:30 PM) — Book online at The LINQ
