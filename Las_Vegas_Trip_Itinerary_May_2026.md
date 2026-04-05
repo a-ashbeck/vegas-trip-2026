@@ -9,7 +9,7 @@
 | Day | Date | Who's There | Theme |
 |-----|------|-------------|-------|
 | Wed | May 6 | Alan + Wife | Arrival (late night) |
-| Thu | May 7 | Alan + Wife | Alan off / Wife works til 2 PM → Penn & Teller |
+| Thu | May 7 | Alan + Wife | Alan off / Wife works til 2 PM → Hard Hat + Arts District → Penn & Teller |
 | Fri | May 8 | Alan + Wife | Both off → Hoover Dam & Valley of Fire road trip |
 | Sat | May 9 | Alan + Wife (AM) / Everyone (PM) | Relaxed morning → Family reunion evening |
 | Sun | May 10 | Everyone | Buffet brunch → High Roller → Family at Sphere / Couple's time → Farewell dinner |
@@ -39,23 +39,26 @@ Alan is off all day. Your wife works until ~2 PM. Some ideas for the morning sol
 - **MGM Grand Pool Complex** — Lazy river, multiple pools. Grab a lounge chair and ease into vacation mode.
 - **Walk the south Strip** — Explore the Park (between NY-NY and Park MGM), peek into casinos you haven't seen, get the lay of the land for the rest of the trip.
 
-### After Wife's Work (~2:30 PM) — Couple's Afternoon
+### After Wife's Work (~2:30 PM) — Hard Hat Lounge + Arts District
 
-**Explore the Strip on foot together:**
-- **Bellagio Conservatory** (free, stunning botanical display) — always worth a stop
-- **Bellagio Fountains** (shows every 30 min in the afternoon, every 15 min after 8 PM)
-- Walk through **The Venetian** — Grand Canal Shoppes, canal gondoliers, ornate architecture
+Head off the Strip for the afternoon. The **Hard Hat Lounge** and the **Las Vegas Arts District** are right next to each other, about an 8-minute rideshare from MGM Grand.
 
-### Lunch or Early Dinner Option (~3:00–4:30 PM)
-**Hard Hat Lounge / Stay Tuned Burgers** — A legendary Vegas dive bar with one of the city's best smash burgers ($9). Open 24/7, located at 1675 Industrial Rd (~8 min rideshare from MGM). The burger comes loaded with chopped white onions by default — **ask for no onions** for FODMAP. Great beer selection, old-school Vegas vibe. Quick, cheap, and memorable.
+**Hard Hat Lounge / Stay Tuned Burgers** (~3:00 PM)
+1675 Industrial Rd. A legendary 1962 Vegas dive bar with one of the city's best smash burgers ($9). Open 24/7. Great beer selection, 25-cent pool tables, old-school Vegas vibe. The burger comes loaded with chopped white onions by default — **ask for no onions** for FODMAP. Quick, cheap, and memorable. This is your meal for the afternoon.
 
-### Dinner (~5:30 PM)
-**Emeril's New Orleans Fish House** (MGM Grand) — Creole-style seafood right in your hotel. Grilled fish, shrimp, and rice dishes that are reasonably FODMAP-navigable. Ask for preparations without garlic/onion — upscale kitchens here handle this routinely. Use part of your **$100 MGM food credit** here.
+**Las Vegas Arts District** (~4:00–6:00 PM)
+A short walk or quick drive from Hard Hat. The 18-block district along Main Street and Commerce Street is full of things to explore:
+- **The Arts Factory** — Converted warehouse with 30+ small galleries and artist studios. Free to walk around and browse.
+- **Street murals** — The whole district is covered in murals. Great for wandering and photos.
+- **Vintage/thrift shops** — Antique malls, boutiques, and quirky stores throughout the blocks.
+- **Craft beer** — **Able Baker Brewing**, **Crafthaus Brewery**, and **HUDL** are all in the neighborhood if you want a drink after exploring.
+- **Luv-It Frozen Custard** — A Vegas institution since the 1970s. Worth a stop.
+- **Koolsville Tattoo** — Famous for $10 tattoos. Bright pink storefront on Main Street. A very Vegas souvenir if you're feeling bold.
 
-### Evening — Penn & Teller (8:00 PM)
-**Penn & Teller at the Rio** — Tickets from ~$107/person. One of the longest-running and best-reviewed shows in Vegas history. 90 minutes of magic, comedy, and their signature blend of debunking and wonder. Penn & Teller often come out to the lobby after the show to meet audience members, which is a nice bonus. The Rio is about a **10-minute rideshare** from MGM Grand.
+> The Arts District is also only ~5–10 minutes from Fremont Street, so if you're ahead of schedule you could swing by for a quick look before heading back for the show.
 
-> **Book in advance** via Ticketmaster or pennandteller.com.
+### Evening — Penn & Teller (8:00 PM) ✓ CONFIRMED
+**Penn & Teller at the Rio** — *Tickets booked.* One of the longest-running and best-reviewed shows in Vegas history. 90 minutes of magic, comedy, and their signature blend of debunking and wonder. Penn & Teller often come out to the lobby after the show to meet audience members, which is a nice bonus. The Rio is about a **10-minute rideshare** from MGM Grand. Plan to head back from the Arts District by ~7:00–7:15 PM to freshen up, or rideshare directly to the Rio from the Arts District (~12 min).
 
 ---
 
@@ -116,10 +119,15 @@ Head north from Hoover Dam along the western edge of Lake Mead. The drive takes 
 
 You'll have been on your feet all day, so the evening is flexible based on energy levels:
 
-**Dinner:**
-**Craftsteak by Tom Colicchio** (MGM Grand) — Modern steakhouse using small-farm ingredients. High-quality cuts, fresh seafood, and clean vegetable sides. Very FODMAP-friendly, and the kitchen will accommodate no-garlic/no-onion requests. Use the rest of your **$100 MGM food credit** here.
+**Dinner — Use your $100 MGM food credit tonight:**
 
-> **Alternative:** **Mon Ami Gabi at Paris Las Vegas** — Patio seating directly overlooking the Bellagio Fountains. Steak frites, grilled fish, French bistro menu. Gorgeous setting for a date night.
+**Option A: Emeril's New Orleans Fish House** (MGM Grand) — Creole-style seafood right in your hotel. Grilled fish, shrimp, and rice dishes that are reasonably FODMAP-navigable. Ask for preparations without garlic/onion — upscale kitchens here handle this routinely.
+
+**Option B: Craftsteak by Tom Colicchio** (MGM Grand) — Modern steakhouse using small-farm ingredients. High-quality cuts, fresh seafood, and clean vegetable sides. Very FODMAP-friendly, and the kitchen will accommodate no-garlic/no-onion requests.
+
+Both are inside MGM Grand, so zero commute after a long day on the road. Either one is a great use of the **$100 MGM food credit**.
+
+> **Off-property alternative:** **Mon Ami Gabi at Paris Las Vegas** — Patio seating directly overlooking the Bellagio Fountains. Steak frites, grilled fish, French bistro menu. Gorgeous setting for a date night (but no MGM credit).
 
 **After Dinner:**
 
@@ -290,11 +298,10 @@ Last night in Vegas. Keep it relaxed or keep it rolling:
 
 ### Key Reservations / Tickets to Book in Advance
 
-1. **Penn & Teller** (Thu May 7, 8 PM) — Ticketmaster or pennandteller.com
-2. **Emeril's New Orleans Fish House** (Thu dinner) — OpenTable
-3. **Rental car** (Fri, or Thu evening–Fri) — Book online in advance for best rates
-4. **Craftsteak** (Fri dinner) — OpenTable
-5. **Carrot Top** (Fri May 8, 8 PM, if going) — Ticketmaster or vegas.com
+1. **Penn & Teller** (Thu May 7, 8 PM) — ✓ CONFIRMED
+2. **Rental car** (Fri, or Thu evening–Fri) — Book online in advance for best rates
+3. **Emeril's or Craftsteak** (Fri dinner) — OpenTable
+4. **Carrot Top** (Fri May 8, 8 PM, if going) — Ticketmaster or vegas.com
 6. **Wizard of Oz at the Sphere** (Sun May 10, 5 PM) — Ticketmaster, buy soon (family only, not Alan + Wife)
 7. **High Roller Happy Half Hour** (Sun ~12:30 PM) — Book online at The LINQ
 8. **Bellagio Buffet** (Sun brunch) — Walk-in usually works, but weekends can have long waits. Consider arriving right at opening.
@@ -309,6 +316,8 @@ Last night in Vegas. Keep it relaxed or keep it rolling:
 - MGM Grand ↔ Rio (Penn & Teller): **~10 min rideshare**
 - MGM Grand ↔ Hofbrauhaus: **~10 min rideshare** (Paradise Rd)
 - MGM Grand ↔ Hard Hat Lounge: **~8 min rideshare** (Industrial Rd)
+- Hard Hat Lounge ↔ Arts District (Main St): **~5 min drive / 15 min walk**
+- Arts District ↔ Fremont Street: **~5–10 min drive**
 - Strip ↔ Sphere: **~10 min rideshare** (or ~25 min walk from LINQ area)
 - Strip ↔ Fremont Street: **~10 min rideshare**
 - Strip ↔ Erotic Heritage Museum (Puppetry): **~10 min rideshare**
