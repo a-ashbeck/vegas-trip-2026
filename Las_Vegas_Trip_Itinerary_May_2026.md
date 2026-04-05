@@ -9,11 +9,13 @@
 | Day | Date | Who's There | Theme |
 |-----|------|-------------|-------|
 | Wed | May 6 | Alan + Wife | Arrival (late night) |
-| Thu | May 7 | Alan + Wife | Work day → Penn & Teller |
-| Fri | May 8 | Alan + Wife | Work day → Date night |
-| Sat | May 9 | Alan + Wife (AM) / Everyone (PM) | Valley of Fire → Family reunion evening |
-| Sun | May 10 | Everyone | Buffet brunch → High Roller → Wizard of Oz → Farewell dinner |
+| Thu | May 7 | Alan + Wife | Alan off / Wife works til 2 PM → Penn & Teller |
+| Fri | May 8 | Alan + Wife | Both off → Hoover Dam & Valley of Fire road trip |
+| Sat | May 9 | Alan + Wife (AM) / Everyone (PM) | Relaxed morning → Family reunion evening |
+| Sun | May 10 | Everyone | Buffet brunch → High Roller → Family at Sphere / Couple's time → Farewell dinner |
 | Mon | May 11 | Alan + Wife | Pack up → Fly home to Chicago |
+
+**Work schedule:** Alan is off the entire trip. Wife works remotely Thursday only (6 AM – 2 PM), off Friday through Monday.
 
 ---
 
@@ -23,23 +25,26 @@
 
 - Check in to **MGM Grand**
 - Grab a late bite at the **MGM Grand Food Court** (open late) — casual and quick, easy to find something FODMAP-manageable
-- Get settled and get some sleep — early morning ahead
+- Get settled and get some sleep
 
 ---
 
-## Thursday, May 7 — Work Day + Penn & Teller
+## Thursday, May 7 — Alan's Free Day + Penn & Teller
 
-### Morning / Afternoon (6:00 AM – 2:00 PM)
-- **Remote work from the room.** MGM Grand rooms have good desk space and Wi-Fi
-- Coffee from the in-room setup or a quick lobby run
-- Alan may have a lighter work day; if free early, the **MGM Grand Pool Complex** (lazy river, multiple pools) is a great way to kill an hour or two while your wife wraps up
+### While Wife Works (6:00 AM – 2:00 PM)
 
-### After Work (~2:30 PM)
+Alan is off all day. Your wife works until ~2 PM. Some ideas for the morning solo or together once she wraps up:
 
-**Explore the south Strip on foot:**
-- Walk through the **Park** (outdoor dining/entertainment district between NY-NY and Park MGM)
-- Head north to the **Bellagio Conservatory** (free, stunning botanical display) — always worth a stop
-- Stroll past the **Bellagio Fountains** (shows every 30 min in the afternoon, every 15 min after 8 PM)
+**Solo morning options for Alan:**
+- **MGM Grand Pool Complex** — Lazy river, multiple pools. Grab a lounge chair and ease into vacation mode.
+- **Walk the south Strip** — Explore the Park (between NY-NY and Park MGM), peek into casinos you haven't seen, get the lay of the land for the rest of the trip.
+
+### After Wife's Work (~2:30 PM) — Couple's Afternoon
+
+**Explore the Strip on foot together:**
+- **Bellagio Conservatory** (free, stunning botanical display) — always worth a stop
+- **Bellagio Fountains** (shows every 30 min in the afternoon, every 15 min after 8 PM)
+- Walk through **The Venetian** — Grand Canal Shoppes, canal gondoliers, ornate architecture
 
 ### Lunch or Early Dinner Option (~3:00–4:30 PM)
 **Hard Hat Lounge / Stay Tuned Burgers** — A legendary Vegas dive bar with one of the city's best smash burgers ($9). Open 24/7, located at 1675 Industrial Rd (~8 min rideshare from MGM). The burger comes loaded with chopped white onions by default — **ask for no onions** for FODMAP. Great beer selection, old-school Vegas vibe. Quick, cheap, and memorable.
@@ -54,88 +59,125 @@
 
 ---
 
-## Friday, May 8 — Work Day + Date Night
+## Friday, May 8 — Hoover Dam & Valley of Fire Road Trip
 
-### Morning / Afternoon (6:00 AM – 2:00 PM)
-- Remote work from the room (same routine)
-- If Alan is free early: pool time, or wander through some of the iconic hotel lobbies and casinos you haven't seen yet
+Both of you are off today. This is your big day-trip day — a scenic loop through two of the most impressive sights near Vegas.
 
-### After Work (~2:30 PM)
+### Pick Up Rental Car (early morning)
+Several rental agencies are near MGM Grand or at the airport. Pick up the car the night before (Thursday evening) or first thing Friday morning.
 
-**Afternoon: Wander the mid-Strip**
-- Walk through **The Venetian** — Grand Canal Shoppes, canal gondoliers, ornate architecture. Great for photos and people-watching.
-- Check out the **Eiffel Tower viewing deck at Paris** (46 stories up, ~$25/person) for great Strip views, or save the heights for the High Roller with the family on Sunday
+### The Route (~165 miles total, ~3 hours of driving)
 
-### Pre-Dinner Drinks (~5:30 PM)
-**Herbs & Rye** — A well-regarded cocktail bar on West Sahara Ave (~10 min rideshare). Speakeasy vibe, classic cocktails made exceptionally well, and half-price happy hour on select drinks from 5–8 PM. A step up from the typical hotel bar experience.
+**Hoover Dam first, then Valley of Fire.** This order beats the crowds at the dam and saves the most scenic spot (Valley of Fire) for the finish.
 
-> **Alternative:** **Skyfall Lounge at Delano** (connected to Mandalay Bay, short walk south from MGM) — 64th-floor views of the Strip at sunset. No cover, just buy drinks.
+```
+Las Vegas → Hoover Dam (35–40 min via US-93 S)
+     → Valley of Fire (1 hr 15 min via Lake Mead / Northshore Rd)
+          → Las Vegas (55 min via I-15 S)
+```
 
-### Dinner (~7:00 PM)
-**Craftsteak by Tom Colicchio** (MGM Grand) — Modern steakhouse using small-farm ingredients. High-quality cuts, fresh seafood, and clean vegetable sides. This protein-and-sides style is very FODMAP-friendly — dishes are prepared simply, and the kitchen will accommodate no-garlic/no-onion requests. Use the rest of your **$100 MGM food credit** here.
+The middle leg along **Lake Mead's Northshore Road** is a scenic drive in its own right — blue water against red desert, with pullover overlooks along the way.
 
-> **Alternative:** **Mon Ami Gabi at Paris Las Vegas** — Patio seating directly overlooking the Bellagio Fountains. Steak frites, grilled fish, French bistro menu. Very FODMAP-navigable and a gorgeous setting for a date night.
+### Stop 1: Hoover Dam (~8:00–10:00 AM)
 
-### Evening (~9:00 PM)
+- **Depart MGM Grand by ~7:00–7:30 AM**
+- **Arrive ~8:00 AM** — ahead of the tour-bus crowds
+- **Guided Power Plant Tour** — $25/person, 30 minutes. Walk through original construction tunnels and see the massive generators up close. Tickets can be purchased on-site.
+- **Or self-guided:** Walk across the dam, hit the overlooks, take in the views of Lake Mead and the Colorado River. Free (parking is $10).
+- Allow ~1.5–2 hours total
+
+> **Tip:** Download offline maps before you leave the hotel. Cell service is spotty at both Hoover Dam and Valley of Fire.
+
+### Scenic Drive: Lake Mead Northshore Road (~10:00–11:15 AM)
+
+Head north from Hoover Dam along the western edge of Lake Mead. The drive takes about 1 hr 15 min with a few photo stops. The contrast of blue reservoir against red rock formations is striking.
+
+### Stop 2: Valley of Fire State Park (~11:30 AM – 2:30 PM)
+
+- **Park entry:** $10/vehicle
+- **Time at the park:** 2–3 hours for the scenic drive with stops and a short hike or two
+
+**Don't-miss stops:**
+- **Fire Wave Trail** — Short, easy hike (~1.2 miles round trip) through swirling red-and-white sandstone. The most photogenic spot in the park. Save this for last — it's the highlight.
+- **Elephant Rock** — Iconic rock formation, very short walk from the parking area
+- **Atlatl Rock** — Ancient petroglyphs, quick staircase climb
+- **Mouse's Tank Trail** — Easy 0.75-mile trail past Native American petroglyphs
+- **White Domes Road** — Scenic drive to stunning formations at the far end of the park
+
+**May weather note:** Expect highs around 95–100°F. Bring plenty of water, sunscreen, and wear hats. You'll appreciate having started early.
+
+### Return to Vegas (~3:30–4:00 PM)
+
+- 55-minute drive back to the Strip via I-15 S
+- Return rental car (or keep overnight and return Saturday morning if that's easier/cheaper)
+- Head back to MGM Grand, shower, decompress
+
+### Evening — Date Night (~6:30 PM onward)
+
+You'll have been on your feet all day, so the evening is flexible based on energy levels:
+
+**Dinner:**
+**Craftsteak by Tom Colicchio** (MGM Grand) — Modern steakhouse using small-farm ingredients. High-quality cuts, fresh seafood, and clean vegetable sides. Very FODMAP-friendly, and the kitchen will accommodate no-garlic/no-onion requests. Use the rest of your **$100 MGM food credit** here.
+
+> **Alternative:** **Mon Ami Gabi at Paris Las Vegas** — Patio seating directly overlooking the Bellagio Fountains. Steak frites, grilled fish, French bistro menu. Gorgeous setting for a date night.
+
+**After Dinner:**
 
 **Option A: Carrot Top at the Luxor (8:00 PM)**
-If you want a show tonight, Carrot Top has a confirmed **Friday May 8 show at 8:00 PM**. Tickets ~$50–$100. Prop comedy legend, genuinely funny, and the Luxor is a short walk from MGM Grand. If you go this route, move dinner to after the show or do an early pre-show dinner at ~5:30 PM.
+Confirmed **Friday May 8 show**. Tickets ~$50–$100. Prop comedy legend, genuinely funny, and the Luxor is a short walk from MGM Grand. If you go this route, do an earlier dinner (~5:30 PM) to make the 8 PM show.
 
 **Option B: Puppetry of the Penis (8:00 PM)**
 Performs Thu–Sun at the Erotic Heritage Museum (~10 min rideshare). ~$41/ticket. 90 minutes of absurd, hilarious "genital origami." A uniquely Vegas experience. VIP includes museum admission.
 
 **Option C: Low-key evening**
-Walk the Strip after dinner. Catch the Bellagio Fountains at night (every 15 min after 8 PM). Dabble at a table or two. Have a nightcap somewhere new. The Strip at night is its own entertainment.
+Walk the Strip after dinner. Bellagio Fountains at night. Dabble at a table or two. Have a nightcap. You just drove 165 miles through the desert — nobody would blame you for keeping it chill.
 
 ---
 
-## Saturday, May 9 — Valley of Fire + Family Arrives
+## Saturday, May 9 — Relaxed Morning + Family Arrives
 
-### Morning — Valley of Fire State Park (rental car day)
+### Morning — Sleep In & Enjoy the Strip
 
-**Pick up rental car early.** Several rental agencies are near MGM Grand or at the airport.
+No alarms. No work. No driving. After yesterday's road trip, take it easy.
 
-- **Depart by 7:30–8:00 AM** to beat the heat and crowds
-- **Drive time:** ~55 minutes via I-15 N to Highway 169
-- **Park entry:** $10/vehicle
-- **Time at the park:** 2–3 hours for the scenic drive with stops
+**Late breakfast/brunch (~10:00 AM):**
+**Wolfgang Puck Bar & Grill** (MGM Grand) — Comfort food elevated, solid brunch options, easy on the stomach.
 
-**Don't-miss stops at Valley of Fire:**
-- **Fire Wave Trail** — short, easy hike (~1.2 miles round trip) through swirling red-and-white sandstone. The most photogenic spot in the park.
-- **White Domes Road** — scenic drive to stunning formations
-- **Elephant Rock** — iconic rock formation, very short walk from the parking area
-- **Atlatl Rock** — ancient petroglyphs, quick staircase climb
-- **Mouse's Tank Trail** — easy 0.75-mile trail past Native American petroglyphs
+**Late Morning / Early Afternoon Options (~11:00 AM – 3:00 PM):**
 
-**May weather note:** Expect highs around 95–100°F. Bring plenty of water, sunscreen, and wear hats. The morning will be more comfortable than midday.
+**Option A: Mob Museum + Fremont Street (as a couple)**
+Head downtown (~10 min rideshare) before the family arrives. This works well as a couple's outing if you'd rather spend the evening focused on family time.
+- **The Mob Museum** (~$35/person, open 9 AM – 9 PM) — Fascinating interactive museum about organized crime and law enforcement. The basement has a functioning **speakeasy** and a small distillery. Allow 1.5–2 hours. Save $7 by buying tickets online for a morning visit (before 11 AM).
+- **Fremont Street Experience** — Walk around, take in the vintage casino vibe, grab a drink. The overhead LED canopy light shows run in the evening, but Fremont has energy any time of day.
 
-- **Return to Vegas by ~12:30–1:30 PM**
-- Return rental car
-- Rest up at the hotel before the family arrives
+**Option B: Pool & Relaxation**
+MGM Grand Pool Complex. Lay out, read a book, decompress before the family arrives.
 
-### Lunch on the Way Back (~1:30 PM)
-Grab something casual near the hotel, or this is another good window for **Hard Hat Lounge** if you didn't go Thursday.
+**Option C: Explore somewhere new**
+Walk through hotels you haven't hit yet — **The Cosmopolitan**, **ARIA**, **Wynn** — window shopping, architecture, people-watching.
 
 ### Late Afternoon — Family Arrives (~4:30 PM)
-- Family checks in to **New York-New York**
+- Sister, brother-in-law, aunt, and nephew check in to **New York-New York**
 - Realistically ready to go by **6:00–7:00 PM**
 - Meet up at NY-NY or the Park area connecting your two hotels (~5 min walk)
 
 ### Evening with the Family (~7:00 PM onward)
 
-**Option A: Downtown Night — Mob Museum + Fremont Street**
-Head downtown as a group (~10 min rideshare). Perfect introduction to Vegas for your nephew.
-- **The Mob Museum** (~$35/person, open until 9 PM) — Fascinating interactive museum about organized crime and law enforcement. The basement has a functioning **speakeasy** and a small distillery. Allow 1.5–2 hours.
-- **Fremont Street Experience** — The original Vegas strip. Overhead LED canopy light shows, live music, the SlotZilla zipline, vintage casinos, and pure neon-lit chaos. Great energy, great people-watching, and a totally different vibe from the Strip.
-- **Dinner downtown:** Grab something casual on Fremont — lots of options. Or eat before heading down.
+**Option A: Hofbrauhaus Group Dinner + Fremont Street**
+- **Hofbrauhaus Las Vegas** (4510 Paradise Rd, ~10 min rideshare) at ~7:00 PM — The only German beer hall in Vegas. Massive steins, pretzels, schnitzels, sausages, and a live Bavarian band playing nightly from 5 PM. Big, loud, communal, and perfect for a group of six celebrating being together. For FODMAP: stick with grilled sausages, pretzels (usually safe), and simple sides. **Ask for preparations without garlic/onion** and skip the onion mustard.
+- After dinner, rideshare downtown to **Fremont Street** (~15 min from Hofbrauhaus) for the LED light show, the vibe, and your nephew's first taste of old-school Vegas. Fremont stays lively until late.
 
-**Option B: Hofbrauhaus Group Dinner**
-**Hofbrauhaus Las Vegas** (4510 Paradise Rd, ~10 min rideshare) — The only German beer hall in Vegas. Massive steins, pretzels, schnitzels, sausages, and a live Bavarian band playing nightly from 5 PM. Big, loud, communal, and perfect for a group of six celebrating being together. For FODMAP: stick with grilled sausages, pretzels (usually safe), and simple sides. **Ask for preparations without garlic/onion** and skip the onion mustard.
+**Option B: Downtown Night — Mob Museum + Fremont Street + Dinner**
+Head downtown as a group (~10 min rideshare). Great introduction to Vegas for your nephew.
+- **The Mob Museum** (~$35/person, open until 9 PM) — Allow 1.5–2 hours. The speakeasy in the basement is worth a stop.
+- **Fremont Street Experience** — LED canopy, live music, SlotZilla zipline, vintage casinos, neon-lit chaos.
+- Dinner downtown — lots of casual options on Fremont.
 
-> You could also do **both** — Hofbrauhaus dinner at 7 PM, then rideshare downtown to Fremont Street afterward for drinks and the light show. Fremont stays lively until late.
+**Option C: Keep it Simple on the Strip**
+The family just traveled. Casual dinner at **Gallagher's Steakhouse** or **Nine Fine Irishmen** at New York-New York (live Irish music, great pub atmosphere), then walk the Strip together. Sometimes the best first night is a low-key one.
 
 ### Late Night Option
-**Puppetry of the Penis** (8:00 PM, if not done Friday) could work as a late-night group outing for the adults — it's a crowd-pleaser.
+**Puppetry of the Penis** (8:00 PM, if not done Friday) could work as a group outing for the adults — it's a crowd-pleaser. Or **Brad Garrett's Comedy Club** at MGM Grand (~$43–$175, lineup TBD for May — check closer to the date).
 
 ---
 
@@ -151,20 +193,37 @@ This is the big group day. The **Wizard of Oz at the Sphere at 5:00 PM** anchors
 ### Late Morning / Early Afternoon (~12:00–1:30 PM)
 
 **High Roller Observation Wheel at The LINQ**
-The whole family together for the **Happy Half Hour cabin** — a 30-minute ride in a private bar cabin with an open bar and panoramic 360-degree views from 550 feet up. ~$50–$65/person for Happy Half Hour (21+ cabin), or ~$35/person for a standard cabin if you'd rather keep it open to everyone. The LINQ Promenade around the wheel also has shops, restaurants, and street performers worth browsing.
+The whole family together for the **Happy Half Hour cabin** — a 30-minute ride in a private bar cabin with an open bar and panoramic 360-degree views from 550 feet up. ~$50–$65/person for Happy Half Hour (21+ cabin). Everyone is 21+, so this works perfectly. The LINQ Promenade around the wheel also has shops, restaurants, and street performers worth browsing.
 
 > **Tip:** Book the Happy Half Hour cabin in advance — they sell out on weekends.
 
 ### Free Time (~2:00–3:30 PM)
-- Head back to the hotels, rest up, freshen up before the show
+- Head back to the hotels, rest up, freshen up
 - This is also a low-pressure window for the **Elvis vow renewal** if the mood strikes — Graceland Wedding Chapel is a 10-minute rideshare, $249 for the "Viva Las Vegas" package, no appointment or paperwork needed. Quick, fun, spontaneous.
 
-### Wizard of Oz at the Sphere (5:00 PM)
-**The whole group heads to the Sphere.** The immersive Wizard of Oz experience on the world's largest LED screen. Plan to arrive by 4:15–4:30 PM for entry. The Sphere is about a **10-minute rideshare** from both MGM Grand and NY-NY (or ~25 min walk via The LINQ area).
+### Wizard of Oz at the Sphere (5:00 PM) — Family Only
+**Sister, brother-in-law, aunt, and nephew head to the Sphere.** The immersive Wizard of Oz experience on the world's largest LED screen. They should plan to arrive by 4:15–4:30 PM. The Sphere is about a **10-minute rideshare** from NY-NY (or ~25 min walk via The LINQ area).
 
-> Tickets range ~$100–$250+ depending on seats. **Buy these soon** — popular weekend shows sell out.
+> Tickets range ~$100–$250+ depending on seats. **They should buy these soon** — popular weekend shows sell out.
 
-### Farewell Group Dinner (~7:30 PM)
+### Alan + Wife — Couple's Time (~4:30–7:30 PM)
+While the family is at the Sphere, you two have a few hours to yourselves. Some options:
+
+**Option A: Explore something you haven't gotten to yet**
+Walk a section of the Strip you haven't covered — **Wynn/Encore**, **The LINQ Promenade**, or head south to **Mandalay Bay** and the Shark Reef Aquarium (~$30/person).
+
+**Option B: Drinks with a view**
+**Skyfall Lounge at Delano** (connected to Mandalay Bay) — 64th-floor views of the Strip at sunset. No cover, just buy drinks. Or find a new cocktail bar to try.
+
+**Option C: Puppetry of the Penis or Brad Garrett's Comedy Club**
+If you haven't caught a second show yet, both run on Sundays at 8 PM. This is your last chance.
+
+**Option D: Elvis vow renewal**
+If you didn't do it earlier in the afternoon, this is another great window — you'll be back in plenty of time for the group dinner.
+
+### Regroup for Farewell Group Dinner (~7:30 PM)
+
+The Sphere show should let out around 6:30–7:00 PM. Meet back up for the last group meal.
 
 **Option A: Hofbrauhaus** (if you didn't go Saturday night) — Same great beer-hall energy, and a fun way to end the trip together.
 
@@ -179,7 +238,7 @@ Last night in Vegas. Keep it relaxed or keep it rolling:
 - Walk the Strip one more time as a group
 - Bellagio Fountains at night
 - Pop into casinos, do some people-watching
-- Drinks at **Nine Fine Irishmen** at New York-New York (live Irish music, great pub atmosphere, easy walk for everyone)
+- Drinks at **Nine Fine Irishmen** at New York-New York (live Irish music, easy walk for everyone)
 - Or just call it a night — you've got a flight tomorrow
 
 ---
@@ -210,13 +269,14 @@ Last night in Vegas. Keep it relaxed or keep it rolling:
 | Penn & Teller (2 tickets) | $215–$420 |
 | Comedy/show (Carrot Top or Puppetry, 2 tickets) | $80–$200 |
 | High Roller Happy Half Hour (2 people) | $100–$130 |
-| Wizard of Oz at Sphere (2 tickets) | $200–$500 |
-| Valley of Fire (rental car + gas + park entry) | $80–$120 |
+| Hoover Dam Power Plant Tour (2 people) + parking | $60 |
+| Valley of Fire (park entry) | $10 |
+| Rental car + gas (1 day) | $70–$110 |
 | Mob Museum (2 tickets) | $70 |
 | Elvis vow renewal (if you do it) | ~$249 |
 | Buffet brunch (Bellagio, 2 people) | $100–$140 |
 | Drinks, rideshares, misc. | $300–$500 |
-| **Estimated Total** | **$2,000–$3,500** |
+| **Estimated Total** | **$1,850–$3,150** |
 
 ### FODMAP Survival Tips for Vegas
 
@@ -232,15 +292,14 @@ Last night in Vegas. Keep it relaxed or keep it rolling:
 
 1. **Penn & Teller** (Thu May 7, 8 PM) — Ticketmaster or pennandteller.com
 2. **Emeril's New Orleans Fish House** (Thu dinner) — OpenTable
-3. **Craftsteak** (Fri dinner) — OpenTable
-4. **Carrot Top** (Fri May 8, 8 PM, if going) — Ticketmaster or vegas.com
-5. **Valley of Fire** — No reservation needed, just show up ($10/vehicle)
-6. **Wizard of Oz at the Sphere** (Sun May 10, 5 PM) — Ticketmaster, buy soon
+3. **Rental car** (Fri, or Thu evening–Fri) — Book online in advance for best rates
+4. **Craftsteak** (Fri dinner) — OpenTable
+5. **Carrot Top** (Fri May 8, 8 PM, if going) — Ticketmaster or vegas.com
+6. **Wizard of Oz at the Sphere** (Sun May 10, 5 PM) — Ticketmaster, buy soon (family only, not Alan + Wife)
 7. **High Roller Happy Half Hour** (Sun ~12:30 PM) — Book online at The LINQ
 8. **Bellagio Buffet** (Sun brunch) — Walk-in usually works, but weekends can have long waits. Consider arriving right at opening.
 9. **Farewell dinner** (Sun) — OpenTable for whichever restaurant you choose
-10. **Rental car** (Sat only) — Book online in advance for best rates
-11. **Graceland Wedding Chapel** — Call 1–2 days before if you decide to go for it
+10. **Graceland Wedding Chapel** — Call 1–2 days before if you decide to go for it
 
 ### Useful Distances
 
@@ -253,7 +312,9 @@ Last night in Vegas. Keep it relaxed or keep it rolling:
 - Strip ↔ Sphere: **~10 min rideshare** (or ~25 min walk from LINQ area)
 - Strip ↔ Fremont Street: **~10 min rideshare**
 - Strip ↔ Erotic Heritage Museum (Puppetry): **~10 min rideshare**
-- Vegas ↔ Valley of Fire State Park: **~55 min drive** via I-15 N
+- Vegas → Hoover Dam: **~35–40 min drive** via US-93 S
+- Hoover Dam → Valley of Fire: **~1 hr 15 min drive** via Lake Mead Northshore Rd
+- Valley of Fire → Vegas: **~55 min drive** via I-15 S
 
 ### Entertainment Options at a Glance
 
@@ -263,4 +324,4 @@ Last night in Vegas. Keep it relaxed or keep it rolling:
 | Carrot Top | Luxor | Fri May 8, 8 PM | ~$50–$100 |
 | Puppetry of the Penis | Erotic Heritage Museum | Thu–Sun, 8 PM | ~$41+ |
 | Brad Garrett's Comedy Club | MGM Grand | Most nights, 8 PM | ~$43–$175 (lineup TBD) |
-| Wizard of Oz | Sphere | Sun May 10, 5 PM | ~$100–$250 |
+| Wizard of Oz *(family only)* | Sphere | Sun May 10, 5 PM | ~$100–$250 |
