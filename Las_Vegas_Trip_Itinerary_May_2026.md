@@ -78,21 +78,21 @@ Las Vegas → Hoover Dam (35–40 min via US-93 S)
 
 The middle leg along **Lake Mead's Northshore Road** is a scenic drive in its own right — blue water against red desert, with pullover overlooks along the way.
 
-### Stop 1: Hoover Dam (~8:00–10:00 AM)
+### Stop 1: Hoover Dam (~9:00–10:30 AM)
 
-- **Depart MGM Grand by ~7:00–7:30 AM**
-- **Arrive ~8:00 AM** — ahead of the tour-bus crowds
-- **Guided Power Plant Tour** — $25/person, 30 minutes. Walk through original construction tunnels and see the massive generators up close. Tickets can be purchased on-site.
+- **Depart MGM Grand by ~8:00–8:15 AM**
+- **Arrive ~8:45 AM** — ahead of the tour-bus crowds
+- **Dam tours start at 9:00 AM.** The **Guided Power Plant Tour** is $25/person, 30 minutes. Walk through original construction tunnels and see the massive generators up close. Tickets can be purchased on-site.
 - **Or self-guided:** Walk across the dam, hit the overlooks, take in the views of Lake Mead and the Colorado River. Free (parking is $10).
-- Allow ~1.5–2 hours total
+- Allow ~1.5 hours total
 
 > **Tip:** Download offline maps before you leave the hotel. Cell service is spotty at both Hoover Dam and Valley of Fire.
 
-### Scenic Drive: Lake Mead Northshore Road (~10:00–11:15 AM)
+### Scenic Drive: Lake Mead Northshore Road (~10:30–11:45 AM)
 
 Head north from Hoover Dam along the western edge of Lake Mead. The drive takes about 1 hr 15 min with a few photo stops. The contrast of blue reservoir against red rock formations is striking.
 
-### Stop 2: Valley of Fire State Park (~11:30 AM – 2:30 PM)
+### Stop 2: Valley of Fire State Park (~12:00 – 2:30 PM)
 
 - **Park entry:** $10/vehicle
 - **Time at the park:** 2–3 hours for the scenic drive with stops and a short hike or two
